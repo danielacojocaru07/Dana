@@ -38,8 +38,8 @@
 
 - 💌 Email: [cojocarud2004@gmail.com](cojocarud2004@gmail.com)
 - 🔗 LinkedIn: [Daniela Cojocaru](https://www.linkedin.com/in/daniela-cojocaru-39188a293/)
-- Instagram: [@thedonorofkarma](https://www.instagram.com/thedonorofkarma/)
-- Facebook: [Daniela Cojocaru](https://web.facebook.com/laura.pergolizzi.948)
+- 💫 Instagram: [@thedonorofkarma](https://www.instagram.com/thedonorofkarma/)
+- 🌎 Facebook: [Daniela Cojocaru](https://web.facebook.com/laura.pergolizzi.948)
 
 ---
 
